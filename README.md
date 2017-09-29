@@ -1,2 +1,2 @@
 # MTM6330-week3
-Harsh Sharma Section - 030
+Isha Bhardwaj Section - 030
